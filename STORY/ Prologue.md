@@ -1,65 +1,181 @@
-PROLOGUE OPENING CONCEPT
+EYES OF THE HEAVENS: TRINITY ASCENSION
 
-Before there were clans.
+PROLOGUE
 
-Before there were seals.
+The Day the Sky Blinked
 
-Before humanity learned to fear the sky.
+There were two versions of history.
 
-There was a god.
+The first was the one taught in schools.
 
-Not a god of creation.
+It spoke of nations, kings, wars, and discoveries.
 
-Not a god of salvation.
+A comfortable history.
 
-A god of refusal.
+A history that allowed people to sleep at night.
+
+The second version was buried.
+
+Hidden beneath sealed archives, forbidden bloodlines, and memories that should never have survived.
+
+That history began with a god who refused to kneel.
 
 Ama-no-Mikaboshi.
 
+The Fallen Star.
+
 The Celestial Who Rejected Fate.
 
-The heavens called him a mistake.
+For thousands of years, humanity forgot his name.
 
-The stars called him a traitor.
+The heavens made sure of that.
 
-History called him evil.
+And for thousands of years, the sky remained silent.
 
-But history was written by those who survived.
+Until the day it blinked.
 
-The war that followed did not scar a nation.
+---
 
-It scarred reality itself.
+The city of Aetherion never slept.
 
-Mountains vanished.
+Towering glass structures pierced the clouds while rivers of white light flowed through streets crowded with millions of people.
 
-Oceans split apart.
+From the ground, it looked beautiful.
 
-Entire civilizations disappeared from memory as if they had never existed.
+From above, it looked fragile.
 
-When the Celestial Host finally won, they could not kill him.
+Like a candle waiting for the wind.
 
-Even the heavens feared what would happen if such a being died.
+No one noticed the first crack.
 
-So they tore him apart.
+Not the businessmen rushing to work.
 
-Not flesh.
+Not the students glued to their phones.
 
-Not bone.
+Not the police drones floating between skyscrapers.
 
-Will.
+Not even the satellites watching from orbit.
 
-Pieces of his divine existence were scattered across reality and sealed within bloodlines, artifacts, and dimensions beyond human understanding.
+The crack appeared for less than a second.
 
-For thousands of years, the world remained stable.
+A thin black line stretching across the heavens.
 
-Then the seals began to crack.
+Then it vanished.
 
-And somewhere beneath a sky humanity had long mistaken for peaceful—
+Most people never saw it.
 
-a pair of twins were born.
+A few convinced themselves it was a trick of the light.
 
-The heavens celebrated.
+Only one person understood what it meant.
 
-The stars trembled.
+Far above the city, inside the highest chamber of the Tenshirō Estate, Kaze Tenshirō slowly opened his eyes.
 
-And fate quietly began preparing for another war.
+Silence filled the room.
+
+The ancient symbols carved into the floor trembled.
+
+Candles extinguished themselves.
+
+The pressure in the air became almost unbearable.
+
+Kaze stared toward the distant horizon.
+
+His expression did not change.
+
+But something ancient moved behind his gaze.
+
+Something fearful.
+
+For the first time in twenty years—
+
+the seal had responded.
+
+"No..." he whispered.
+
+The word barely escaped his lips.
+
+Yet it carried enough weight to shake the room.
+
+The black crack appeared again.
+
+This time longer.
+
+This time wider.
+
+For a single heartbeat, the sky looked back.
+
+And Kaze felt it.
+
+Not power.
+
+Not hatred.
+
+Recognition.
+
+Something beyond the seal had noticed the world once more.
+
+Something that remembered.
+
+Something that had been waiting.
+
+A voice echoed through the darkness beyond perception.
+
+Calm.
+
+Patient.
+
+Almost gentle.
+
+As if speaking to a child.
+
+«How strange.»
+
+The chamber froze.
+
+Kaze's blood ran cold.
+
+«They are still afraid.»
+
+The voice carried no anger.
+
+No excitement.
+
+No cruelty.
+
+Only disappointment.
+
+The disappointment of a being observing the same mistake repeated endlessly.
+
+«After all this time...»
+
+«They still call the cage salvation.»
+
+For the first time in decades, Kaze Tenshirō felt fear.
+
+Not fear for himself.
+
+Not fear for the clan.
+
+Fear for his children.
+
+Because somewhere beneath the same sky—
+
+two twins carried fragments of the thing that had just awakened.
+
+And the seal was beginning to fail.
+
+Far below the estate, completely unaware of the nightmare stirring beyond reality—
+
+Kairo Tenshirō smiled as his sister argued with him over breakfast.
+
+The world still felt normal.
+
+Peaceful.
+
+Safe.
+
+Neither of them knew that before the day ended—
+
+the heavens would remember their names.
+
+And fate would begin preparing for another war.
