@@ -1,84 +1,235 @@
 SEASON 5
-EPISODE 6: THE CONVERGENCE SIGNAL
-SCENE 1 — THE SYSTEM STOPS SPREADING
-The identity drift slows.
-Not because it is fixed.
-But because it is being directed.
-Kairo, Reika, and Kaze feel it at the same time.
-The instability is no longer random.
-It is pointing somewhere.
-Kaze is the first to speak.
+
+EPISODE 6: CONVERGENCE
+
+---
+
+SCENE 1 — THE DRIFT STOPS GROWING
+
+The identity drift continues.
+
+But something changes.
+
+The spread stops.
+
+The instability no longer expands across reality.
+
+Instead—
+
+it begins moving inward.
+
+Toward a single point.
+
+Kaze notices first.
+
 KAZE:
-“…It stopped expanding.”
+
+"...Wait."
+
 A pause.
+
 KAZE:
-“It’s focusing now.”
-SCENE 2 — KAIRO NOTICES THE PATTERN
-Kairo stands still.
-Something feels wrong in a different way now.
-Not chaos.
-Order.
-But forced order.
-KAIRO:
-“It’s not taking everything anymore.”
-A pause.
-KAIRO:
-“It’s choosing what to take.”
-Reika looks at him.
-REIKA:
-“Choosing for what?”
-Kairo doesn’t answer immediately.
-SCENE 3 — REIKA HEARS ONE VERSION
-Reika suddenly pauses.
-Her expression tightens.
-REIKA:
-“…I only hear one version now.”
-Kaze turns sharply.
-KAZE:
-“What do you mean?”
-REIKA:
-“It feels like all contradictions are being removed.”
+
+"It's not spreading anymore."
+
 Silence.
-SCENE 4 — THE FOURTH LAW
-Deep inside Tenshirō origin fragments, Kaze finds something new.
-A stabilized directive appears:
-«“CONVERGENCE CONDITION: PREPARE REALITY FOR SINGLE ORIGIN RECOGNITION.”»
-Kaze steps back slightly.
+
+---
+
+SCENE 2 — REALITY BEGINS CHOOSING
+
+Across the world—
+
+conflicting memories begin disappearing.
+
+Not all memories.
+
+Only the contradictions.
+
+People who remembered different versions of events suddenly remember the same thing.
+
+Entire disagreements vanish overnight.
+
+Reika watches in disbelief.
+
+REIKA:
+
+"...It's choosing."
+
+Kairo looks at her.
+
+KAIRO:
+
+"What is?"
+
+Reika answers softly.
+
+REIKA:
+
+"The version it wants to keep."
+
+---
+
+SCENE 3 — THE END OF ALTERNATIVES
+
+Kaze accesses the Tenshirō fragments again.
+
+This time—
+
+the records stop changing.
+
+Thousands of possibilities collapse into one stable structure.
+
 KAZE:
-“…It’s preparing something.”
-SCENE 5 — THE UNKNOWN BOY STOPS
-The Unknown Boy stops walking.
-For the first time since the return.
-Reality stabilizes around him.
-Not fully.
-But enough to feel intentional.
-As if everything is waiting for alignment.
-SCENE 6 — GLOBAL ALIGNMENT
-Across the world, contradictions begin disappearing.
-Different versions of events collapse into one shared structure.
-People no longer disagree about reality.
-Because only one version remains stable enough to exist.
+
+"No..."
+
+A pause.
+
+KAZE:
+
+"The alternatives are disappearing."
+
+Silence.
+
+---
+
+SCENE 4 — THE UNKNOWN BOY STOPS WALKING
+
+For the first time since his return—
+
+the Unknown Boy stops.
+
+The moment he does—
+
+reality becomes quieter.
+
+More stable.
+
+Almost peaceful.
+
+Kairo feels it immediately.
+
+KAIRO:
+
+"...He's waiting."
+
+Reika turns.
+
+REIKA:
+
+"For what?"
+
+Kairo cannot answer.
+
+---
+
+SCENE 5 — THE FOURTH LAW
+
+A new origin fragment appears.
+
+Older than every previous record.
+
+Kaze opens it.
+
+A single directive appears:
+
+«“CONVERGENCE PHASE INITIATED.”»
+
+A pause.
+
+«“SELECT FINAL STABLE REALITY.”»
+
+Kaze freezes.
+
+KAZE:
+
+"...This was always planned."
+
+Silence.
+
+---
+
+SCENE 6 — REIKA FEELS THE LOSS
+
+Reika suddenly closes her eyes.
+
+Something disappears.
+
+Not a memory.
+
+Not a person.
+
+A possibility.
+
+A version of reality.
+
+Gone forever.
+
+REIKA:
+
+"...I felt it die."
+
+Akari looks confused.
+
+AKARI:
+
+"What died?"
+
+Reika opens her eyes.
+
+REIKA:
+
+"A future."
+
+---
+
 SCENE 7 — KAIRO UNDERSTANDS
+
 Kairo looks upward.
-Something clicks.
+
+Everything suddenly feels clear.
+
+Not because reality is healing.
+
+Because reality is reducing itself.
+
 KAIRO:
-“…It’s not correcting reality.”
+
+"...It's not correcting errors."
+
 A pause.
+
 KAIRO:
-“It’s selecting the only version it can keep.”
-Reika speaks softly.
-REIKA:
-“And everything else?”
-Kairo answers immediately.
-KAIRO:
-“It gets removed completely.”
+
+"It's removing choices."
+
 Silence.
+
+---
+
 FINAL SCENE — THE MESSAGE
-The sky opens again.
-A message appears:
-“CONVERGENCE PHASE: 20% COMPLETE”
-Kaze whispers.
-KAZE:
-“…We’re being reduced to one outcome.”
+
+The sky opens once more.
+
+A new message appears.
+
+"CONVERGENCE PHASE: 25% COMPLETE"
+
+Then another.
+
+"FINAL REALITY SELECTION IN PROGRESS"
+
+No one speaks.
+
+Because for the first time—
+
+they understand what the correction is truly doing.
+
+Reality is deciding what deserves to remain.
+
 CUT TO BLACK.
-END OF EPISODE 6 
+
+---
+
+END OF EPISODE 6 — CONVERGENCE
